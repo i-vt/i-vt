@@ -1,6 +1,6 @@
-## Hi there 👋
+## 👋
 
-![67 67 School](https://klipy.com/gifs/67-67-school/media.gif)
+![67](./67.gif)
 
 - If anyone claims it is their account, ask them for proof — to post something on this GitHub, because they probably can't. Don't believe 'em impostors.
 - Шли нахуй додиков которые претворяются мной онлайн, если воздуханят шо эт я, попросите их ченть запостить на этом гитхабе как пруф.
