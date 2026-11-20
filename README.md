@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-- Не верьте подражателям и нищебродам, которые продают услуги по уклонению от призыва (военники) и рекламируют наркошопы. Это не их GitHub. С любовью, i-vt.
-- Do not believe copycats and broke-ass mfs who sell draft evasion services and promote drug shops. This is not their GitHub. With love, i-vt.
-- 不要相信那些冒牌货和穷鬼。他们靠出售逃避兵役的服务赚钱，还为毒品商店做广告。这不是他们的 GitHub。爱你们的，i-vt。
+<iframe src="https://klipy.com/gifs/67-67-school/player" width="498" height="348" title="67 67 School" frameborder="0" allowfullscreen loading="lazy"></iframe>
 
+* If anyone claims it is their account ask them for proof to post somen on this GitHub - because they probably can't. Don't believe 'em impostors.
+* Шли нахуй додиков которые претворяются мной онлайн, если воздуханят шо эт я, попросите их ченть запостить на этом гитхабе как пруф.
+* 网上装我的那些傻逼都滚远点，谁要是跟你吹这就是他本人，让他在这个 GitHub 上发点啥当证据再说。
